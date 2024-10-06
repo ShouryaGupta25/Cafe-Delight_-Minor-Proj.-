@@ -1,1 +1,1 @@
-# Cafe-Delight_-Minor-Proj.-
+# Cafe-Delight_-Minor-Project
